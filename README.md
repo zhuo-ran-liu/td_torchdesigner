@@ -5,6 +5,8 @@ I made this simple touch designer patch that reveals the visual using any light 
 
 If you make anything, I'd be happy to see!
 
+And please don't melt your lovely screens 🫶
+
 
 
 
